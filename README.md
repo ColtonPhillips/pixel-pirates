@@ -6,4 +6,8 @@ coltonjphillips at gmail dot com
 Contributors:
 Colton Phillips
 Michael Boston
+Boyad Hollingshead
+Caitlin Olesen
+Michael Pattie
+Linnéa Alt
 
